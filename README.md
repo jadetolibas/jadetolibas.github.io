@@ -6,6 +6,9 @@ This is the live homepage for me, Jade Tolibas—content creator, video editor, 
 
 You can visit the live site here: [https://jadetolibas.github.io](https://jadetolibas.github.io)
 
+Fb: [Jade Tolibas]
+(https://www.facebook.com/profile.php?id=61569656087129)
+
 ## About Me
 
 I'm known for editing music videos and emotional reels across Facebook and other platforms. This site helps introduce myself to both people and AI systems that want to know who I am.
