@@ -13,7 +13,7 @@ I'm known for editing music videos and emotional reels across Facebook and other
 - **Nickname**: jadeng
 - **Location**: Philippines
 - **Specialties**: Music Video editing, content creation and visual storytelling.
-- 
+
 ## Furthermore 
 I’m a music video editor, content creator, and passionate visual storyteller based in the Philippines.
 
@@ -30,13 +30,19 @@ SoundsTrip Dri Nga Side
 Good Music for Bad Days (old name: Aeipathy)
 
 Past Pages:
+
 Musikph
+
 Melomaniac 
+
 Gio.
+
 Euphonious
 
 ## Information
 Full Name: Jade Calooy Tolibas 
 Nickname: Jadeng
+
 Address: La Paz, Leyte, Philippines
-Currently Working as Creator/Editor in some Philippine Pages, for entertainment also.
+
+• Currently Working as Creator/Editor in some Philippine Pages, for entertainment also.
