@@ -6,8 +6,7 @@ This is the live homepage for me, Jade Tolibas—content creator, video editor, 
 
 You can visit the live site here: [https://jadetolibas.github.io](https://jadetolibas.github.io)
 
-Fb: [Jade Tolibas]
-(https://www.facebook.com/profile.php?id=61569656087129)
+Fb: https://www.facebook.com/profile.php?id=61569656087129
 
 ## About Me
 
